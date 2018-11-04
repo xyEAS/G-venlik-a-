@@ -1,0 +1,1 @@
+# G-venlik-a-
